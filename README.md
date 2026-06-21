@@ -1,6 +1,9 @@
 # !!!!!CREEPY NIGHTMARES HERE!!!!!
 
-I'm the second account of **@BugeStudioTeam**!!!  
-But I never use this one for serious stuff LOL 🤪  
+![DA](./1.png)
   
 ![67.gif](./67.gif)
+
+![DB](./2.png)
+
+![67scp](./673.gif)
