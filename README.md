@@ -1,4 +1,4 @@
-
+PLS FOLLOW @BugeStudioTeam , PLEEEEEEEEAAAASSSSSEE
 
 <img src="./1.png" alt="DA" width="3072" height="922">
   
